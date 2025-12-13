@@ -1,0 +1,1 @@
+# syimyk2005.github.io
